@@ -1,1 +1,0 @@
-Though It will take some time and dsicpline to finish the course it help me to create a basic webpage, how to set a up my Github account, how internet works... just thankful
